@@ -2,7 +2,7 @@
  <br>
  <br>
 
-# <a  href="https://apps.microsoft.com/detail/9pm6hq85j8hw?referrer=appbadge&mode=direct" target="_blank">八字行者官方實務命盤使用案例說明</a> <br>
+# <a  href="https://www.facebook.com/profile.php?id=61550038147504" target="_blank">八字行者官方實務命盤使用案例說明</a> <br>
  <br>
  <br>
  
